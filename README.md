@@ -2,4 +2,4 @@
 - Me chamo Micheli
 - Estudo no CECMPS
 - Instagram: miihlimaa20
-- 😄 Pronomes: elu/delu
+- 😄 Pronomes: ela/dela
